@@ -1,1 +1,1 @@
-Thos is a fucking game
+This is a fucking game. You win.
